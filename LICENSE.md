@@ -1,4 +1,4 @@
-
+new survive the apocalypse Scripts is the best survive the apocalypse Script, featuring god mode and auto-farm. Safe and powerful for all your needs.
 
 
 
